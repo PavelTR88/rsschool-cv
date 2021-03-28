@@ -15,9 +15,7 @@
 ## Education and experience ##  
 
 **Saratov Socio-Economic Institute**  
-Faculty of Economics and Management  
-Organization management, Bachelor's Degree  
-*2011-2015*  
+  
 
 **Self-education:**  
  
