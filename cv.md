@@ -14,12 +14,14 @@
 
 ## Education and experience ##  
 
-**Saratov Socio-Economic Institute**  
-  
+**Saratov Socio-Economic Institute**
+Faculty of Humanities
+public relations specialist in the field of economics
+*2005-2010*
 
 **Self-education:**  
  
 
 ## Languages ##  
    
-**Russian - native**  
+
