@@ -4,7 +4,7 @@
 ## Contact me ##  
 +79271244552  
 **email:** ptropin@bk.ru  
-**telegram:** [Pavel Tropin](http://t.me/Pavel Tropin)  
+**telegram:** [Pavel Tropin](http://t.me/PavelTropin)  
 **github:**  
 
 ## Summary ##  
